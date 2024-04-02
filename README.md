@@ -1,6 +1,6 @@
 # 👋 Howdy!
 
-My Links: https://evansstepanov.com
+My website: https://evansstepanov.com
 
-My projects: https://builtbyevans.com
+Buy me a coffee: https://www.buymeacoffee.com/estepanov
 
